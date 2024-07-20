@@ -1,2 +1,2 @@
 # Omeshwar-Reddy-Kona
-Be in reality and work smart
+Be in reality and work smart.
